@@ -1,4 +1,4 @@
-CS major at _______ State University
+CS major
 
 Learning new things :*]
 <!---
